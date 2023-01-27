@@ -1,2 +1,2 @@
 Computer science student.
-Contact @ [github-username] + gatto@pm.me
+Contact @ [github-username] + @duddino.com
